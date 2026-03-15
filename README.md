@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @IlayeeSade
-- 👀 I’m interested in machine learning, maths and artificial inteligence.
+- 👀 I’m interested in machine learning, maths and artificial intelligence.
 - 🌱 I’m currently learning all of the above.
+- 🏆 Been Top 500 player in Overwatch!!!.
 - 💞️ I’m looking to collaborate on these subjects.
 - 📫 How to reach me ilayeesade@gmail.com
 - 😄 Pronouns: he/him
