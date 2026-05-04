@@ -4,4 +4,3 @@
 - 🏆 Been Top 500 player in Overwatch!!!.
 - 💞️ I’m looking to collaborate on these subjects.
 - 📫 How to reach me ilayeesade@gmail.com
-- 😄 Pronouns: he/him
